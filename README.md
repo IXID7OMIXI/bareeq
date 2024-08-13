@@ -1,2 +1,2 @@
 # Bareeq
-Link: [www.ixid7omixi.com](https://pages.github.com/)
+Link: [www.ixid7omixi.com]([https://ixid7omixi.com/])
